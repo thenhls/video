@@ -2,9 +2,9 @@
 
 How to watch Florida Panthers vs Tampa Bay Lightning NHL game: Live stream, TV channel, and start time. The Battle of Florida is set to reignite once again—and the stakes have never been higher.
 
-👉 Watch Live ::: https://bestones.icu/unisportathletics/
+👉 Watch Live ::: https://bestones.icu/nhl/
 
-👉 Watch Live ::: https://bestones.icu/unisportathletics/
+👉 Watch Live ::: https://bestones.icu/nhl/
 
 For the fourth time in five seasons, the Tampa Bay Lightning and Florida Panthers will collide in the Stanley Cup Playoffs, opening their First Round series at Amalie Arena on Tuesday, April 22. But unlike previous meetings in 2021 and 2022—when Tampa entered as the reigning champion—it's now Florida that carries the crown.
 
