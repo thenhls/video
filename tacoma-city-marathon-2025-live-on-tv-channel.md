@@ -1,4 +1,4 @@
-# [ＷＡＴＣＨＬＩＶＥ]ＴＶ！] Tacoma City Marathon 2025 LIVE STreams Cheer ON TV Channel 
+# [ＷＡＴＣＨＬＩＶＥ]ＴＶ！] Tacoma City Marathon 2025 LIVE STreams Half ON TV Channel 
 
 Mark your calendar for the weekend of May 3rd & 4th, 2025 and join us for the return of the Ghost of Tacoma on Saturday and the Tacoma City Marathon on Sunday with Marathon Relay, Half Marathon, 10K & 5K options also available.
 
