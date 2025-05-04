@@ -1,4 +1,4 @@
-# [ＷＡＴＣＨＬＩＶＥ]ＴＶ！] Pittsburgh Marathon 2025 LIVE STreams Cheer ON TV Channel 
+# [ＷＡＴＣＨＬＩＶＥ]ＴＶ！] Pittsburgh Marathon 2025 LIVE STreams Half ON TV Channel 
 
 More than 45,000 runners of all age are taking part in the 2025 Dick's Sporting Goods Pittsburgh Marathon weekend. More than 45,000 runners of all age are taking part in the 2025 Dick's Sporting Goods Pittsburgh Marathon weekend.
 
